@@ -8,7 +8,7 @@ Welcome to my GitHub profile! I'm a passionate USF Computer science major
 - [LinkedIn](www.linkedin.com/in/aforta2006)
 
 ## 📫 How to Reach Me
-Feel free to reach out via [At3ch12@gmail.com] if you have any questions, or just want to chat!
+Feel free to reach out via At3ch12@gmail.com if you have any questions, or just want to chat!
 
 ## 🎉 Fun Fact
 I enjoy [playing video games with friends,reading manga and listening to music] in my free time and I'm always looking for new adventures!
